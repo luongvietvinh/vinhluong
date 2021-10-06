@@ -1,1 +1,0 @@
-anh nhận ra 
